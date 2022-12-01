@@ -1,3 +1,3 @@
-### JAEDEOK JO
-### lubiksss@gmail.com
-### https://velog.io/@jake0208
+## JAEDEOK JO
+## lubiksss@gmail.com
+## https://velog.io/@jake0208
