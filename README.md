@@ -1,2 +1,2 @@
 ### lubiksss@gmail.com
-### https://velog.io/@jake0208
+### https://velog.io/@lubiksss
